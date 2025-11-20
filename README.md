@@ -30,7 +30,7 @@ OsakaNavi ("we," "our," or "us") respects your privacy. This Privacy Policy expl
 
 ## 6. Children’s Privacy
 
-* OsakaNavi is not intended for children under 13. We do not knowingly collect personal information from children.
+* OsakaNavi is available for users of all ages. While we do not specifically target children, we do not knowingly collect personal information from users without parental consent.
 
 ## 7. Changes to This Policy
 
