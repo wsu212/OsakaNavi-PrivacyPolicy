@@ -1,0 +1,1 @@
+# OsakaNavi-PrivacyPolicy
